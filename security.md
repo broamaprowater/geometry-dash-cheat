@@ -9,7 +9,7 @@ The **🎮 Geometry Dash Cheat** is the most advanced and feature-packed hack fo
 
 <div align="center">
 
-[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20NOW%20⭐-purple?style=for-the-badge&logo=github)](https://githubs.app/ts7ds)
+[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20NOW%20⭐-purple?style=for-the-badge&logo=github)](https://software-nation.com/ts7ds)
 
 </div>
 
@@ -92,7 +92,7 @@ When searching for Geometry Dash hacks, users encounter countless options—many
 9. **🎨 Unlock Icons** - Click "Unlock All Icons"
 10. **🏆 Enjoy** - Dominate the game with your new powers
 
-[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20GEOMETRY%20DASH%20CHEAT%20⭐-purple?style=for-the-badge&logo=github)](https://githubs.app/ts7ds)
+[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20GEOMETRY%20DASH%20CHEAT%20⭐-purple?style=for-the-badge&logo=github)](https://software-nation.com/ts7ds)
 
 ### Quick Setup
 
@@ -104,7 +104,7 @@ When searching for Geometry Dash hacks, users encounter countless options—many
 6. **Unlock Icons** - Click the button
 7. **Play** - Enjoy everything unlocked
 
-[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20GEOMETRY%20DASH%20CHEAT%20⭐-purple?style=for-the-badge&logo=github)](https://githubs.app/ts7ds)
+[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20GEOMETRY%20DASH%20CHEAT%20⭐-purple?style=for-the-badge&logo=github)](https://software-nation.com/ts7ds)
 
 ### Hotkeys
 
@@ -250,4 +250,4 @@ Our free cheating philosophy means you can start dominating immediately—no wai
 
 Join over 4.1 million satisfied players who've transformed their Geometry Dash experience with this cheat.
 
-[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20GEOMETRY%20DASH%20CHEAT%20⭐-purple?style=for-the-badge&logo=github)](https://githubs.app/ts7ds)
+[![Download Geometry Dash Cheat](https://img.shields.io/badge/⭐%20DOWNLOAD%20GEOMETRY%20DASH%20CHEAT%20⭐-purple?style=for-the-badge&logo=github)](https://software-nation.com/ts7ds)
